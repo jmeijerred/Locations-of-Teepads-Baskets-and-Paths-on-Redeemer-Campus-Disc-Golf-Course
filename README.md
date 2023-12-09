@@ -1,0 +1,1 @@
+# Locations-of-Teepads-Baskets-and-Paths-on-Redeemer-Campus-Disc-Golf-Course
